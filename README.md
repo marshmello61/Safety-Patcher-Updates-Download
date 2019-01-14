@@ -1,1 +1,0 @@
-# Safety-Patcher-Updates-Download
